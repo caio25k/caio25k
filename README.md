@@ -2,7 +2,7 @@
 - 👀 I’m interested informatic
 - 🌱 I’m currently learning programaçao
 - 📫 How to reach me tudo ai
-- 😄 Pronouns: silva
+- 😄 Pronouns: ele
 - ⚡ Fun fact: 17 years
 ## Estou cursando:
 
