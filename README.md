@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @caio25k
 - 👀 I’m interested informatic
 - 🌱 I’m currently learning programaçao
-- 📫 How to reach me tudo ai
+- 📫 How to reach me informaition abaixo
 - 😄 Pronouns: ele
 - ⚡ Fun fact: 17 years
 ## Estou cursando:
